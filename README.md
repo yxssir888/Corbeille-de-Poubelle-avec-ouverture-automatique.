@@ -1,0 +1,1 @@
+# Corbeille-de-Poubelle-avec-ouverture-automatique.
